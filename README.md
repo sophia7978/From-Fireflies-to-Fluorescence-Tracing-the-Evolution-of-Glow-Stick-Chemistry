@@ -1,5 +1,5 @@
 # From Fireflies to Fluorescence Tracing the Evolution of Glow Stick Chemistry
-
+![glow stick](https://c1.wallpaperflare.com/preview/639/27/691/glow-stick-colorful-light-color.jpg)
 ## Introduction: Unveiling the Luminescent Legacy
 
 From the captivating flickering of the fireflies on summer nights to the throbbing glow of modern-day dance floors illuminated by glow sticks, mankind has been spellbound by luminescent displays since time immemorial. In this inquiry, we will embark on a journey of time and chemistry that is expected to unravel the fascinating process through which [glow sticks](https://sinoglow.com/glow-sticks/) have evolved from their modest origin to become part and parcel of contemporary people’s lives.
@@ -9,6 +9,7 @@ From the captivating flickering of the fireflies on summer nights to the throbbi
 Luminescence has been a topic of study for centuries, and the first records of glowing phenomena in civilizations date back to ancient times. It wasn’t until the 1800s that scientists started to understand luminescence through the use of phosphorescent materials. In one key breakthrough at the turn of the century, chemiluminescence, light produced as a result of a chemical reaction, was identified by scientists.
 
 ## The Birth of Glow Sticks: Chemistry Unveiled
+![glow stick](https://sinoglow.com/wp-content/uploads/2021/08/6-Inch-Glow-Sticks-Green.jpg)
 
 Modern glow sticks started when Edwin Chandross and Stanley Epstein began experimenting with new formulas. The two chemists relied on chemiluminescence theories and thus modified the chemical system to support steady-state luminescence in a predictable reaction. As a result of this development, affordable glow sticks were made successfully for the first time ever in history as high points of light technology.
 
